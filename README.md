@@ -1,2 +1,2 @@
-# Au-Dela
- jewelry website
+# Au-Dela Jewelry Website
+ 
